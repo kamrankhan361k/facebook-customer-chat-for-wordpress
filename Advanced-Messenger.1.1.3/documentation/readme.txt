@@ -1,0 +1,1 @@
+Please go to the https://messenger.looks-awesome.com/knowledgebase/installation-and-requirements/ for online documentation
